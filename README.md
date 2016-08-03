@@ -1,2 +1,0 @@
-# Ravi-Patel
-Share Portfolio
